@@ -1,1 +1,1 @@
-- 👋 ¡Hola! Soy Paula
+👋 ¡Hola! Soy Paula
